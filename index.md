@@ -2,7 +2,7 @@
 
 **Email:** westenglandcompany@yahoo.co.uk 
 
-**Phone:** 07506576302
+**Phone:** 0203-4440501
 
 **Address:** 92A Goodmayes Road 
          Ilford 
